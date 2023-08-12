@@ -1,1 +1,1 @@
-# truecore.github.io
+TRUECORE (TRUC) Token
